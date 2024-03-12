@@ -1,1 +1,1 @@
-Pol'zovat'sya vetkami nado ostorojhno
+new Pol'zovat'sya vetkami nado ostorojhno
